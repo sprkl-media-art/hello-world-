@@ -4,4 +4,5 @@ just another repository
 Hi everyone
 
 Sprkl here :D 
-Im an artist and writer- thats it
+im an artist and writer- thats it 
+my life isnt that great
